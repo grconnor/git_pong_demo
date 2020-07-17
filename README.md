@@ -1,1 +1,2 @@
-This is some content that I have added.
+Finally, we did it Connor. Wanna try out the adavanced part?
+Maybe tommorrow?
